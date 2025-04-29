@@ -1,0 +1,1 @@
+# Struktur_Data_-Tourix-Gilang-AL-Farizi-24241137-
